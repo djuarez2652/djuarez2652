@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Artificial Intelligence, Advanced Systems Progamming, & Computer Networks**
 
-- 📫 How to reach me **djuarez0440@gmail.com**
+- 📫 How to reach me **dj2652@columbia.edu**
 
 - ⚡ Fun fact **I love to learn!**
 
